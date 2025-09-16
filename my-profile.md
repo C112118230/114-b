@@ -8,3 +8,6 @@
 * 技能三 會喝酒
 
 座右銘：*自由意志殺不死你對他愛的感覺*
+
+[G-DRAGON](https://www.instagram.com/xxxibgdrgn/#)
+![替代文字](圖片URL)
