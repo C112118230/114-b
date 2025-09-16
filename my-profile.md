@@ -12,3 +12,5 @@
 [G-DRAGON](https://www.instagram.com/xxxibgdrgn/#)
 
 ![image](20170724215738_69.jpg)
+
+```成功不是終點，努力才是過程。```
